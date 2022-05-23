@@ -3,7 +3,7 @@
 
 - 📫 How to reach me:
 
-  mail : vicente.lavagnino@uc.cl
+  Mail : vicente.lavagnino@uc.cl
   
   Instagram : @vicho_lavagnino
   
